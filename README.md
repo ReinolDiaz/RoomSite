@@ -8,9 +8,7 @@
 - I will attempt to make a personal brand site, leveraging this.
 
 ## Images that inspired me
--https://www.google.com/url?sa=i&url=https%3A%2F%2Fgigazine.net%2Fgsc_news%2Fen%2F20210913-my-room-in-3d%2F&psig=AOvVaw1w-pxnm0XHNFPOq_7fPZJK&ust=1668456764721000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCJCNnPj7q_sCFQAAAAAdAAAAABAE![image](https://user-images.githubusercontent.com/14115034/201542327-2eebd24e-f585-4c7c-8056-f208dca6c885.png)
-
-
+-![E9ZTR1PWUAc59Xm](https://user-images.githubusercontent.com/14115034/201542487-06bf959a-7512-49b1-bb14-8e47ea14b82f.jpeg)
 
 
 
